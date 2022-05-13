@@ -12,3 +12,7 @@ Lets create community where we can code and share new synths, that then users ca
 Lets finally have more then 4 tracks recorder!!
 
 Come and help us !
+
+# Community
+
+Join our discord server https://discord.gg/nxUzXdJm
